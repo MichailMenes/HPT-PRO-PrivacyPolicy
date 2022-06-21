@@ -1,1 +1,0 @@
-# HPT-PRO-PrivacyPolicy
